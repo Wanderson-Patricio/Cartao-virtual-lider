@@ -1,0 +1,3 @@
+Terminei a leitura dos capítulos necessários para o cumprimento do requisito.
+A leitura é excelente. O livro é uma pérola para os pais, principalmente aqueles que são pais de primeira viagem. Para a diretoria do clube de desbravadores também achei uma leitura fantástica, pois revela maneiras de conversar com a crianças e adolescentes a respeito de Deus, de maneira a fixar em suas mentes o caráter amoroso do Pai.
+A leitura de suas mensagens me tocou e continuarei lendo o livro para aprender mais sobre o que a serva do Senhor nos ensinou a respeito da orientação da criança.
